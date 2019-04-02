@@ -1,2 +1,3 @@
 # GinaUltimo.github.io
-vghjgvjyhghj
+Castro Sánchez Georgina Michelle
+Noriega Nuñez Carlos Fernando
